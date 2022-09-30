@@ -1,0 +1,1 @@
+# seyitahmetgkc.github.io
